@@ -7,4 +7,4 @@ By using this tool, you agree that:
 - You will not upload offensive or copyrighted content.
 - We are not responsible for TikTok's moderation decisions.
 
-Contact: your@email.com
+Contact: joshuaantony2004@gmail.com
